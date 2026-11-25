@@ -36,7 +36,7 @@
 
 **\[ ] 🎯 Objetivo SMART**
 
-&#x20;   **→ Vender trinta peças de roupa em 10 dias**
+&#x20;   **→ Vender 15 peças de roupa em 10 dias**
 
 
 
